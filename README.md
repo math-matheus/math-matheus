@@ -20,8 +20,6 @@
 🙌 HABILIDADES 🙌
 
 - Trabalho em equipe
-
 - Comunicativo
-
 - Liderança
 
